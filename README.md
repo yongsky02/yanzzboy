@@ -1,2 +1,2 @@
 # yanzzboy
-my namen is ariyandi solehudin
+my name is ariyandi solehudin
